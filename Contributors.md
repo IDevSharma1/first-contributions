@@ -340,6 +340,7 @@ vrushabhpatil48
 - [RIMA DJAMAA](https://github.com/rimadjamaa) **KEEP GOING 🧠**
 - [lexolotl14]
 - [Saswat Mishra](https://github.com/saswatms)
+- [Dev Sharma](https://github.com/IDevSharma1)
 - [Axel Contreras] **Hi everybody. Nice to meet you all ;)**
 - [DilanEspinoza](https://github.com/DilanEspinoza) **Nothing to say**
 - [PersoNameDaniel](https://github.com/PersoNameDaniel)
